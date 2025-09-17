@@ -10,6 +10,8 @@ I speak fluently Spanish and English! I can also understand a bit of French and 
 I _love_ researching new things and learning! 🤔 <br/>
 I also like doing little projects about things I enjoy! 🍃🐶🎮
 
-### My most used languages 🔤⌨️
+Check out my CV!📄 <br/>
+[English](https://drive.google.com/file/d/1iDy_60fs1LMTbKubW1zrc547JFls3ENT/view?usp=sharing) <br/>
+[Español](https://drive.google.com/file/d/1hzeK4gnP8HiEe0W4ak7A0HQqB634xCA8/view?usp=sharing) <br/>
 
-![Top Langs](https://github-readme-stats.vercel.app/api/top-langs/?username=MartaGranado&layout=compact&langs_count=8&theme=algolia)
+
