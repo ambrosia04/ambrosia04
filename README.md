@@ -11,7 +11,7 @@ I _love_ researching new things and learning! 🤔 <br/>
 I also like doing little projects about things I enjoy! 🍃🐶🎮
 
 Check out my CV!📄 <br/>
-[English](https://drive.google.com/file/d/1iDy_60fs1LMTbKubW1zrc547JFls3ENT/view?usp=sharing) <br/>
-[Español](https://drive.google.com/file/d/1hzeK4gnP8HiEe0W4ak7A0HQqB634xCA8/view?usp=sharing) <br/>
+[English](https://drive.google.com/file/d/1aKn4fG9JEzWiHoSj8-HTQ2-X24_XQuDG/view?usp=sharing) <br/>
+[Español](https://drive.google.com/file/d/1Yi5vh7ZWk-nh-wj_UKe-LTM2JCy8bXON/view?usp=sharing) <br/>
 
 
