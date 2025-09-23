@@ -2,8 +2,8 @@
 
 ### About me 🐦‍🔥
 👩🏻‍🎓Software Engineer from _Universidad de Málaga_.🏫 <br/>
-I'm currently learning how to generate C code with Python and how to use XState correctly! <br/>
-I've also worked a bit with a Raspberry Pi <img src="https://upload.wikimedia.org/wikipedia/en/c/cb/Raspberry_Pi_Logo.svg" alt="Raspberry Pi" width="20"/> <br/>
+I've learnt how to generate C code with Python and how to use XState correctly! <br/>
+I've also worked a bit with a Raspberry Pi <img src="https://upload.wikimedia.org/wikipedia/en/c/cb/Raspberry_Pi_Logo.svg" alt="Raspberry Pi" width="20"/> and Arduino! <br/>
 I speak fluently Spanish and English! I can also understand a bit of French and Italian!
 
 ### What do I like? 💓
