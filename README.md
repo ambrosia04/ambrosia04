@@ -10,7 +10,6 @@ I speak fluently Spanish and English! I can also understand a bit of French and 
 I _love_ researching new things and learning! 🤔 <br/>
 I also like doing little projects about things I enjoy! 🍃🐶🎮
 
-Check out my CV!📄 <br/>
-[Español & English](https://drive.google.com/file/d/1Cfi0t8cRCxLMc2pT4iuoTzRv31syUvRl/view?usp=sharing) <br/>
+Contact me on martagranado4a@gmail.com for my CV!📄 <br/>
 
 
